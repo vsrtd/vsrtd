@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @vsrtd
+- 👀 I’m interested in sports and computer
+- 🌱 I’m currently learning coding  
